@@ -1,2 +1,2 @@
 # An-vo-day-vui-lam-ne
-An vo day diiii
+Này chỉ là troll tí thôi ^^ Chúc một ngày tốt lành, nếu k tốt lắm thì mai mình chúc tiếp nha^^
